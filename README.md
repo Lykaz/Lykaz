@@ -1,1 +1,1 @@
-I’m @Lykaz
+I’m Lykaz
